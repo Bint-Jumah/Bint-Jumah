@@ -32,4 +32,4 @@ I am a detail-oriented Data scientist/analyst with a unique backgroung in **Mark
  - Email: jumaihbarakat@gmail.com
  - Location: Lagos, Nigeria
     
--->
+
